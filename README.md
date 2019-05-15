@@ -10,3 +10,7 @@ https://www.youtube.com/watch?v=FhbMNV-FAIQ
 
 Keynote - Jacob Kaplan-Moss - Pycon 2015
 https://www.youtube.com/watch?v=hIJdFxYlEKE&feature=share
+
+Cory Doctorow
+Anything by Cory D, really.
+https://www.youtube.com/watch?v=4ZqodxGufR8

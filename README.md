@@ -14,3 +14,6 @@ https://www.youtube.com/watch?v=hIJdFxYlEKE&feature=share
 Cory Doctorow
 Anything by Cory D, really.
 https://www.youtube.com/watch?v=4ZqodxGufR8
+
+Ethan Marcotte - The World-Wide Work
+https://ethanmarcotte.com/wrote/the-world-wide-work/
